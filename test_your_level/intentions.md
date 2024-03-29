@@ -1,0 +1,1 @@
+I  know i am quite passionate about building things and learning new things. this is my primary motivation but  i would to be able to build beautiful user interfaces that are user friendly and accessible to all. I do  have other projeccts in my mind like financial or data management projects that i would  like to work on.
